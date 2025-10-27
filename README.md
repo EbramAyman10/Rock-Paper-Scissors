@@ -1,4 +1,4 @@
-[## 🚀 Live Preview
+🚀 Live Preview
 
 👉 **View the live site here:**  
 
